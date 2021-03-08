@@ -6,7 +6,9 @@
 
 
 
+
 Learn core concepts and skills necessary in today's selling environment—from negotiation and closing strategies to selling with authenticity. Recognize that selling is a partnership. Develop your sales skills, people skills, and ability to create emotional engagement and earn the trust of others.
+
 
 
 
@@ -15,6 +17,13 @@ Learn core concepts and skills necessary in today's selling environment—from n
 - Identify negotiation and closing strategies that suit you.
 
 - Develop and hone your interpersonal, or "soft," skills.
+
+
+
+
+
+
+-----------------------
 
 
 
