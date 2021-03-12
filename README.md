@@ -61,3 +61,20 @@ In the world of sales, being self-confident and engaging with others are the key
 ## Second Course : [Sales Foundations](https://www.linkedin.com/learning/sales-foundations/the-mind-of-the-buyer-2?contextUrn=urn%3Ali%3AlyndaLearningPath%3A58925bf8498e7ab27c1ba996 )
 
 
+
+## Course details
+
+What makes someone effective at sales? A genuine desire to help others solve problems. In this course, former Genentech senior leader and Braintrust founder Jeff Bloomfield explains why and how the best salespeople learn how to see through the eyes of their customers. He outlines strategies to help you connect with and understand your customers' needs, and position your product or service as the solution to their problem. He also provides a step-by-step how-to guide to creating your own sales process or identifying gaps in your existing one.
+
+
+
+
+
+
+
+
+
+.
+
+
+.
