@@ -68,9 +68,27 @@ What makes someone effective at sales? A genuine desire to help others solve pro
 
 
 
+## Learning objectives
+
+
+- The philosophy of sales
+
+- Identifying potential customers
+
+- Exploring buying motivators
+
+- Communicating the power of your solution
+
+- Developing an effective sales process
 
 
 
+
+## Skills covered
+
+- Sales
+
+- Sales Effectiveness
 
 
 
