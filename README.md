@@ -52,3 +52,12 @@ In the world of sales, being self-confident and engaging with others are the key
 . ![Prepare Yourself for a Career in Sales.png](https://udacity-reviews-uploads.s3.us-west-2.amazonaws.com/_attachments/399095/1615567712/Prepare_Yourself_for_a_Career_in_Sales.png)
 
 . 
+
+
+
+-----------------------
+
+
+## Second Course : [Sales Foundations](https://www.linkedin.com/learning/sales-foundations/the-mind-of-the-buyer-2?contextUrn=urn%3Ali%3AlyndaLearningPath%3A58925bf8498e7ab27c1ba996 )
+
+
