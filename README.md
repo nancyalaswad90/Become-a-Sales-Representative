@@ -76,5 +76,12 @@ What makes someone effective at sales? A genuine desire to help others solve pro
 
 .
 
+. ![سشمممممم.png](https://udacity-reviews-uploads.s3.us-west-2.amazonaws.com/_attachments/399095/1615574107/%D8%B3%D8%B4%D9%85%D9%85%D9%85%D9%85%D9%85%D9%85.png)
+
 
 .
+
+
+
+
+------------------------------------
