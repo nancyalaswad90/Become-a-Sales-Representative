@@ -31,6 +31,19 @@ Learn core concepts and skills necessary in today's selling environment—from n
 
 
 
+## Course details
+
+In the world of sales, being self-confident and engaging with others are the keys to your success. In this course, sales coach Dean Karrel provides advice for developing yourself professionally and building more effective relationships with both your teammates and your customers. Get tips for keeping things simple, focusing on the positive, recognizing the accomplishments of other members of your team, and keeping your ego in check. Dean also details how to reliably leave a positive first impression, including how to deliver a proper greeting. Plus, he emphasizes the importance of remembering people's names and following through on a commitment. No matter what sales techniques or strategies you end up using to achieve your goals, these skills are the foundation to a long and successful career in sales.
+
+
+
+
+## Skills covered
+
+
+ - Sales Trainings
+ 
+ - Sales Effectiveness
 
 
 .
