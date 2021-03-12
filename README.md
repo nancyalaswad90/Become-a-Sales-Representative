@@ -28,3 +28,14 @@ Learn core concepts and skills necessary in today's selling environment—from n
 
 
 ## [Prepare Yourself for a Career in Sales](https://www.linkedin.com/learning/prepare-yourself-for-a-career-in-sales-2020/preparing-for-a-sales-career?contextUrn=urn%3Ali%3AlyndaLearningPath%3A58925bf8498e7ab27c1ba996)
+
+
+
+
+
+.
+
+
+. ![Prepare Yourself for a Career in Sales.png](https://udacity-reviews-uploads.s3.us-west-2.amazonaws.com/_attachments/399095/1615567712/Prepare_Yourself_for_a_Career_in_Sales.png)
+
+. 
