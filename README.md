@@ -125,7 +125,7 @@ All too often sales calls become an interrogation, leaving the prospects feeling
 
 .
 
-> 
+>  ![certif.png](https://udacity-reviews-uploads.s3.us-west-2.amazonaws.com/_attachments/399095/1615662585/certif.png)
 
 
 .
