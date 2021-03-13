@@ -133,3 +133,21 @@ All too often sales calls become an interrogation, leaving the prospects feeling
 ----------------------------
 
 
+
+
+## Fourth Course : [Soft Skills for Sales Professionals](https://www.linkedin.com/learning/soft-skills-for-sales-professionals/next-steps?contextUrn=urn%3Ali%3AlyndaLearningPath%3A58925bf8498e7ab27c1ba996)
+
+
+
+## Course details
+
+
+As a sales professional, you probably know your product inside and out. But success in sales requires more than just technical know-how. Soft skills—those tough-to-define relational skills that help you earn your customer's trust—are equally essential to your bottom line. In this course, business strategist and instructor Meridith Elliott Powell covers soft skills in depth, sharing strategies that can help you bolster your emotional intelligence and communicate more effectively with prospects. Meridith begins by explaining why soft skills are crucial to sales success. She then dives into some of the most essential soft sales skills, including building connections, listening, and selling with greater emotional intelligence. Throughout the course, Meridith also uses real-world scenarios that help illustrate soft skills in action.
+
+
+
+
+
+
+
+
