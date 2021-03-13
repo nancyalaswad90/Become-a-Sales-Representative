@@ -103,3 +103,12 @@ What makes someone effective at sales? A genuine desire to help others solve pro
 
 
 ------------------------------------
+
+## Third Course : [Asking Great Sales Questions](https://www.linkedin.com/learning/asking-great-sales-questions-5/next-steps?contextUrn=urn%3Ali%3AlyndaLearningPath%3A58925bf8498e7ab27c1ba996)
+
+
+
+## Course details
+
+
+
