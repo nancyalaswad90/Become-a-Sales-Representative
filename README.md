@@ -150,4 +150,21 @@ As a sales professional, you probably know your product inside and out. But succ
 
 
 
+## Learning objectives
+
+- What are soft skills?
+- Why soft skills matter in sales
+- Connecting with your customer
+- Developing your emotional intelligence for sales
+- Collaborating effectively with your team
+- Being confident in your sales decisions
+- Building your empathy muscle in sales
+- Integrating soft sales skills with hard sales skills
+- Leveraging storytelling in sales
+
+
+## Skills covered
+
+
+Emotional IntelligenceSoft SkillsSales Effectiveness
 
