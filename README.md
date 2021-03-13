@@ -92,7 +92,6 @@ What makes someone effective at sales? A genuine desire to help others solve pro
 
 
 
-.
 
 . ![سشمممممم.png](https://udacity-reviews-uploads.s3.us-west-2.amazonaws.com/_attachments/399095/1615574107/%D8%B3%D8%B4%D9%85%D9%85%D9%85%D9%85%D9%85%D9%85.png)
 
@@ -109,6 +108,11 @@ What makes someone effective at sales? A genuine desire to help others solve pro
 
 
 ## Course details
+
+
+
+All too often sales calls become an interrogation, leaving the prospects feeling defensive and unsure where the conversation is leading. In this course, sales coach Jeff Bloomfield provides an alternative that puts the focus back on customers and clients. Jeff helps you gain insight into your customer’s business problems and objectives, and use those insights to guide your sales questions. By asking the right questions, you can create connection, drive credibility, create urgency, and confirm value clarity—validating the business impact of your solution. Plus, get advice on digging deeper and continuing the conversation—for more successful sales interactions and longer-lasting relationships.
+
 
 
 
