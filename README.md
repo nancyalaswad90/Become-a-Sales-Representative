@@ -181,3 +181,17 @@ As a sales professional, you probably know your product inside and out. But succ
 
 - Sales Effectiveness
 
+
+
+.
+
+> ![certif.png](https://udacity-reviews-uploads.s3.us-west-2.amazonaws.com/_attachments/399095/1615668415/certif.png)
+> 
+
+.
+
+
+
+-------------------------------------
+
+
