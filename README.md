@@ -116,3 +116,20 @@ All too often sales calls become an interrogation, leaving the prospects feeling
 
 
 
+## Skills covered
+
+
+- Negotiation Sales
+
+
+
+.
+
+> 
+
+
+.
+
+----------------------------
+
+
