@@ -293,10 +293,14 @@ Even the most outstanding sales presentation can be met with objections. As a sa
 
 .
 
+> ![Closing Strategies](https://user-images.githubusercontent.com/36210723/111877512-619d2180-89ac-11eb-8a2d-5481411fd194.png)
 
 
 .
 
+
+
+.
 
 ------------------------
 
@@ -348,6 +352,11 @@ Even the most outstanding sales presentation can be met with objections. As a sa
 .
 
 
+> ![Stories Great Sales People Tell](https://user-images.githubusercontent.com/36210723/111877501-5cd86d80-89ac-11eb-847a-a79a93ab085d.png)
+
+
+
+.
 
 
 .
