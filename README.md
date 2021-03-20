@@ -269,7 +269,7 @@ Even the most outstanding sales presentation can be met with objections. As a sa
 
  
 
- ## Seventh Course :
+ ## Seventh Course : [Sales: Closing Strategies](https://www.linkedin.com/learning/sales-closing-strategies/strategies-for-closing-sales?contextUrn=urn%3Ali%3AlyndaLearningPath%3A58925bf8498e7ab27c1ba996)
  
  
  
@@ -300,13 +300,54 @@ Even the most outstanding sales presentation can be met with objections. As a sa
 
 ------------------------
 
- ## Eighth Course :
+ ## Eighth Course : [Selling with Stories, Part 2: Stories Great Sales People Tell](https://www.linkedin.com/learning/selling-with-stories-part-2-stories-great-sales-people-tell/a-story-for-every-step-of-the-sale?contextUrn=urn%3Ali%3AlyndaLearningPath%3A58925bf8498e7ab27c1ba996)
 
 
  
  ## Course details
  
  
+ Stories connect people. Telling a compelling and authentic story can solidify the relationship with your potential customer and win the sale. In this course, you can learn how to leverage the power of storytelling throughout the sales process. Paul Smith—the author of the best-selling book Sell with a Story: How to Capture Attention, Build Trust, and Close the Sale—covers the 25 most essential types of sales stories and shares formulas for developing your own specific narratives. Learn the stories you should tell from introduction to pitch to close, to capture buyer interest and build loyalty that lasts for the long term.
+ 
+ 
+ 
+ 
 ## Learning objectives
 
+- Introducing yourself to the buyer
+
+- Preparing for the sales call
+
+- Building rapport
+
+- Telling your story
+
+- Making the main sales pitch
+
+- Handling objectives
+
+- Closing the sale
+
+- Managing customer relationships
+
+
+
 ## Skills covered
+
+
+
+- Storytelling
+
+- Sales Strategy
+
+- Sales Effectiveness
+
+
+
+
+.
+
+
+
+
+.
