@@ -196,18 +196,39 @@ As a sales professional, you probably know your product inside and out. But succ
 
 
 .
-## Fifth Course :
+## Fifth Course : [Sales: Handling Objections](https://www.linkedin.com/learning/sales-handling-objections/responding-to-sales-objections?contextUrn=urn%3Ali%3AlyndaLearningPath%3A58925bf8498e7ab27c1ba996)
 
 
-## Learning objectives
 
-## Skills covered
+## Course details
+
+
+Even the most outstanding sales presentation can be met with objections. As a sales professional, your success hinges on your ability to respond to these concerns with confidence. In this course, instructor Dean Karrel digs into some of the most common objections that crop up throughout the sales process, explains how to prepare for them, and shares strategies for responding. Get a better understanding of the buyer and seller relationship, discover how to respond to buyers who object to the price of your service or product, learn what to say to a buyer who simply insists that "they'll get back to you," and more. Upon completing this course, you'll be better equipped to tackle this critical aspect of the sales process.
+
+
+
+
+
+.
+
+
+
+.
 
 
 
 --------------------
 
- ## Sixth Course : 
+ ## Sixth Course : [Sales Negotiation](https://www.linkedin.com/learning/sales-negotiation/why-sales-negotiations-are-different?contextUrn=urn%3Ali%3AlyndaLearningPath%3A58925bf8498e7ab27c1ba996)
+ 
+ 
+ 
+ ## Course details
+ 
+ Bestselling author and sales coach Lisa Earle McLeod has helped companies like Google and Roche build passionate, purpose-driven sales organizations. In this course, sales professionals can learn how to negotiate with the best interests of their organization and their customers at heart, by uncovering their own noble purpose. Lisa reveals the surprising truth behind why compromise doesn't work; instead, she explains how to ask questions that reveal information about the buyer—and help you decide when you can negotiate and when you can't. She also identifies common negotiation traps and ways to negotiate that don't just close the sale today, but build longer-term relationships for tomorrow.
+ 
+ 
+ 
  ## Learning objectives
 
 ## Skills covered
@@ -221,6 +242,11 @@ As a sales professional, you probably know your product inside and out. But succ
 
  ## Seventh Course :
  
+ 
+ 
+  
+ ## Course details
+ 
  ## Learning objectives
 
 ## Skills covered
@@ -230,6 +256,11 @@ As a sales professional, you probably know your product inside and out. But succ
 
  ## Eighth Course :
 
+
+ 
+ ## Course details
+ 
+ 
 ## Learning objectives
 
 ## Skills covered
