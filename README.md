@@ -276,9 +276,26 @@ Even the most outstanding sales presentation can be met with objections. As a sa
   
  ## Course details
  
- ## Learning objectives
+ What separates the inexperienced salesperson from the successful one is the ability to close sales. However, along with prospecting and handling objections, closing sales is one of the hardest skills for salespeople to master. Join Dean Karrel, a trainer and sales executive for over 30 years, for this course, which provides tips and techniques to help you develop your own successful closing strategy. Learn how to nurture the relationship with your buyer, overcome obstacles, recognize buying signals, and ask for the business. Plus, find out how to improve your close rate throughout the sales pipeline by expanding what it means to sell.
+ 
+ 
+ 
+
 
 ## Skills covered
+
+- Sales Process
+
+- Sales Strategy
+
+- Deal Closure
+
+
+.
+
+
+
+.
 
 
 ------------------------
