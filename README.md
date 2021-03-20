@@ -231,8 +231,37 @@ Even the most outstanding sales presentation can be met with objections. As a sa
  
  ## Learning objectives
 
+
+- Identify the focus of your opening questions.
+
+- List the three types of negotiators.
+
+- Name three circumstances in which you should not negotiate.
+
+- Recall how to tell the difference between a negotiator and a buyer.
+
+- Recognize techniques that can help diffuse anger.
+
+- Determine the best approach when a customer knows all of your product offerings.
+
+
+
+
 ## Skills covered
 
+- Communication
+
+- Small Business Management
+
+- Situational Sales Negotiation
+
+
+
+.
+
+
+
+.
 
 
 
