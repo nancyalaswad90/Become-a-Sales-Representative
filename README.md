@@ -21,6 +21,14 @@ Learn core concepts and skills necessary in today's selling environment—from n
 
 
 
+.
+
+
+> ![specilllllllll](https://user-images.githubusercontent.com/36210723/111877506-5ea23100-89ac-11eb-8863-92f983978731.png)
+
+
+.
+
 
 
 -----------------------
@@ -212,12 +220,19 @@ Even the most outstanding sales presentation can be met with objections. As a sa
 .
 
 
+> ![Handling Objections](https://user-images.githubusercontent.com/36210723/111877511-61048b00-89ac-11eb-8320-04ba1564e9b5.png)
+ 
+
 
 .
 
 
 
+
 --------------------
+
+
+
 
  ## Sixth Course : [Sales Negotiation](https://www.linkedin.com/learning/sales-negotiation/why-sales-negotiations-are-different?contextUrn=urn%3Ali%3AlyndaLearningPath%3A58925bf8498e7ab27c1ba996)
  
@@ -259,6 +274,7 @@ Even the most outstanding sales presentation can be met with objections. As a sa
 
 .
 
+> ![Sales Negotiation](https://user-images.githubusercontent.com/36210723/111877507-5f3ac780-89ac-11eb-89d0-4db5dabba934.png)
 
 
 .
